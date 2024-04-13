@@ -1,0 +1,1 @@
+# ENTRY_-DETAIL
